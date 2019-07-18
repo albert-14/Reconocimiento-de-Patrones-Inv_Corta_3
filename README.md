@@ -1,0 +1,1 @@
+# Reconocimiento-de-Patrones-Inv_Corta_3
